@@ -1,0 +1,2 @@
+# premium-iron-bench-001-iron-bench-frame-garden-seat
+Tired of losing track of measurements, material costs, and welding steps across multiple iron bench projects? The Iron Bench Frame &amp; Garden Seat Craft Hub is your all-in-one Notion workspace to build with precision and peace of mind.  This template eliminates the chaos of scattered notes and spreadsheets by giving you a dedicated system to manage e
